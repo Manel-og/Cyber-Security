@@ -1,1 +1,1 @@
-## Welcome to this Cyber-Security section of my portfoili.
+## Welcome to this Cyber-Security section of my portfolio.
